@@ -5,3 +5,5 @@ Olá!! Eu sou a Maria
 🤔 Estou procurando ajuda com C 
 📫 Chegue até mim através do e-mail: mariabarbosamaciel06@icloud.com
 😄 Pronomes:Ela/Dela
+
+
